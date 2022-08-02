@@ -1,0 +1,1 @@
+# gigabyte_z490i_aorux_ultra_monterly
